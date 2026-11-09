@@ -102,8 +102,6 @@ Full Stack Developer passionate about building scalable web applications and sol
 </p>
 
 📧 akhileshmandawganeofficial@gmail.com  
-📱 +91 9689228469
-
 ---
 
 ## Fun Fact
